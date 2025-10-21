@@ -1,1 +1,0 @@
-# radupalade.github.io
